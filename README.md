@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EverythingCoco
+- 👋 Hi, I’m Coco
 - 👀 I’m interested in making friends whom I can learn and work with
 - 🌱 I’m currently learning web develpment
 - 📫 You can reach me on phone and WhatsApp via +2347057396209
